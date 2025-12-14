@@ -1,5 +1,7 @@
 # Ramuramu-
-Hallo i am erm ramu/zi . she/they/them . Aroace .!! artist/sometimes and also i dont wnat to make new friends anyways . introvert . hates socializing much usually . !! #fandoms that i am on the area: murder drones  epic the musical, dandy's world , forsaken @_@ :D
-idk what to put usually hehe:33 🩹
-🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦🍦
-I WANT ICE CREAM MOTHERFUCKER i mean wut:3 hehe
+Hallo i am erm ramu/medkitz . and js to be welcome here
+
+introvert . hates socializing . taken !!!! . | pls dni if ur homophobic/transphobic . gonning/any
+ and int w/ me pls u can c+h w/ me if u want i js dont like socialize and tell me whats ur name or any online 
+
+ . . . auhh ok bai ig???
